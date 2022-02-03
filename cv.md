@@ -1,6 +1,7 @@
 # Curriculum vitae 
 ## Hanna Maroz
 **Contact Info:** 
+* *LinkedIn:* www.linkedin.com/in/hanna-maroz-5b0b34155
 
 * *e-mail:* anja.maroz@gmail.com
 
